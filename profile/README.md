@@ -1,4 +1,4 @@
-# [Unleaky - "Trusted Network"](http://www.unleaky.com)
+# [Unleaky - Trusted Network](http://www.unleaky.com)
 
 To establish Unleaky as a synonym for trust and security in the digital world, transforming businesses into leak-proof entities and fostering a safer and more secure digital ecosystem globally.
 
